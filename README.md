@@ -12,5 +12,7 @@ https://www.youtube.com/watch?v=yxpcyq4hOi0&t=29s
 https://www.youtube.com/watch?v=PJjldu8WZLs
 3. 노현석의 프싱메, 두성과 가성의 차이
 https://www.youtube.com/watch?v=yzjI170tJVE
+4. 벨칸토 소리의 방향과 질감
+https://www.youtube.com/watch?v=3Bv8Wm7VDF0
 
 궁금한 것은 42born2code @jayoon DM!
